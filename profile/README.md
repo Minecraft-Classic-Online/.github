@@ -4,6 +4,8 @@
 
 **Minecraft Classic Online** is a **legendary retro-style sandbox adventure** that brings back the nostalgic roots of the original Minecraft experience. Dive into a **pixelated 3D world**, unleash your creativity, and build anything from tiny homes to towering castles. Whether you're crafting alone or with friends in multiplayer, the experience is pure and timeless.
 
+## <a href="https://1kb.link/oUJesD">👉 Play Minecraft Classic Unblocked Games 👈</a>
+
 ---
 
 ### **💥 Key Features**
